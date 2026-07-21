@@ -8,4 +8,4 @@ It is customary for those that occupy provencial milieux to minimize the <b>*ubi
 
 The direct experience of death was had by humanity at large since time immemorial&mdash;not only does one reap grains with the scythe, becoming the image of death (the "grim reaper") to arrive by empathy with the *lively upward movement* of plants starting in the agrarian age, but was had in previously ages as well: Soon after the hunt, one finds that to slit the throat of animal and drain its blood was the most efficient means of consumption. The empathy with the sacrificed animal became self-deception&mdash;*to be constituted by death everywhere*, *rather shamefully tearing into animal and vegetal bodies*, meant that we are constituted *exactly* by what contradicted our own self-conception or 'identity'&mdash;*our own death* identified with that of the lively and animate, or *ensouled* being.
 
-... to read the rest of this&mdash;*you can't because you mustn't*. regardless, no patreon set up yet.
+... to read the rest of this&mdash;*you mustn't because you can't*. regardless, no patreon set up yet.
