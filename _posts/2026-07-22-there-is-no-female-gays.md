@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "there is no female gays"
-date:   2026-07-21 00:00:00 +0000
+date:   2026-07-22 00:00:00 +0000
 categories: hyperwoke or woke2
 ---
 In the age of "looksmaxxing" and the so-called "performative male," there is a tendency to fulfill a parallel&mdash;the invention of a *female gaze* that men can cater to. Maybe, signaling that I'm *in the know*, I should pretend to read Anton J&#228;ger's "hyperpolitics" at the local caf&#233; unsheathed from my tastefully logo-free tote with an alt-milk matcha latte, after some casual bone-smashing, of course. The conception of the "female gaze" is not unexpected as the future shifts to "traditionally feminine" modes of power rather than those "traditionally masculine." Beyond the redistributive efforts towards equality, being wildly unequally distributed geographically, the societal means of control (in provencial milieux) has shifted away from overt violence, discipline and punishment, towards *more subtle and terrifying forces* of control, tested in current zones of wanton violence. (I'm sure they're deeply offended by being bombed into the ground by a *rainbow corp. oppressed gay girlboss*&mdash;"the hypocrisy!" screamed from inside a ball of fire and rubble.) To elaborate these new means of control clearly, we must investigate the *notion of gaze*.
